@@ -107,9 +107,6 @@ Open to discussing projects, technical challenges, startup collaborations, or ma
 
 - **Email:** shalinrathod02@gmail.com
 - **LinkedIn:** https://www.linkedin.com/in/shalin-rathod-301400305/
-- **GitHub:** https://github.com/shalin0078
 - **Instagram:** https://www.instagram.com/shalin_rathod_
 
 ---
-
-*Profile compiled from shalinrathod.in (2026)*
